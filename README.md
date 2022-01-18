@@ -1,4 +1,4 @@
-### GM FRENDS 👋
+### GM FRENS 👋
 
 Me presento como una persona activa,responsable,
 creativa, flexible, orientada allogro de resultados y a la resolución y evolución constante de las tareas asignadas. Mi experiencia no es amplia, pero puedo adquirir conocimientos rápidamente. Deseoso de que micurriculum haya sido de su agrado.
